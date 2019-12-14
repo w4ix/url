@@ -1,11 +1,5 @@
-# 鲸落云
+新站地址：https://w4-01.club
 
-请收藏此页面，以防走丢
+永久地址：https://whale-fall.cloud
 
-镜像地址：（更新于2019年12月14日）
-
-https://w4-01.club
-
-永久地址：（需翻墙）
-
-https://whale-fall.cloud
+老站入口（即将关闭）：https://portal.蜂蜜柠檬茶.com
