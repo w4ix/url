@@ -2,6 +2,6 @@
 
 新站入口：https://w4-01.club
 
-永久地址：https://whale-fall.cloud
+永久地址：https://w-fall.cloud
 
 老站入口：https://portal.蜂蜜柠檬茶.com （即将关闭）
