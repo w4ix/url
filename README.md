@@ -1,6 +1,6 @@
-鲸落云地址发布
+鲸落云地址发布页
 
-新站入口：https://w4-01.club
+新站入口：https://qq.com.w4-02.club
 
 永久地址：https://w-fall.cloud
 
