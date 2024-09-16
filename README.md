@@ -2,4 +2,4 @@
 
 永久地址：https://w-fall.cloud
 
-可用入口：https://qq.com.w4-04.club
+可用入口：https://w4-tmp1.com
